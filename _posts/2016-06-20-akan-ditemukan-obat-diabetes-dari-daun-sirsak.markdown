@@ -14,3 +14,5 @@ Mereka yaitu Elsa Mukti Atmaja, Nurulita Ainun Alma, Muhamad Rendi, Afifah Khoir
 Sesaat dari sebagian studi yang sudah dikerjakan terlebih dulu di ketahui daun sirsak bisa turunkan kandungan gula darah pada tikus yang diinduksi diabetes sampai 75% tanpa ada berikan dampak toksik untuk tikus yang sehat. 
 
 Diluar itu, daun ini dapat juga mempercepat pernyembuhan luka lantaran kandungan anti-oksidan serta anti-inflamasi. Mereka juga mempelajari selanjutnya untuk tahu dampak ekstrak daun sirsak pada pengobatan luka diabetes. Dari riset ini diinginkan bisa memberi alternatif therapy pada pengobatan luka pada pasien diabetes.
+
+Lainnya: <a href="http://psnively.github.io/2016/06/16/khasiat-efektif-daun-sirsak-naikkan-massa-tulang.html">Khasiat Efektif Daun Sirsak Naikkan Massa Tulang</a>
