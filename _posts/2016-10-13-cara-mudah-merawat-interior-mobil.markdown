@@ -2,6 +2,7 @@
 published: true
 title: Cara Mudah Merawat Interior Mobil
 layout: post
+permalink: merawat-interior-mobil
 ---
 Punya mobil di zaman seperti ini adalah seperti hal yang biasa. Mobil sudah ibarat kacang goreng yang setiap orang mampu membelinya. Maksudnya mampu membelinya adalah karena memang tidak harus mobil baru, mobil bekas saja cukup untuk melengkapi kebutuhan transportasi sehari-hari. Semua itu sebenarnya cukup sederhana, hanya saja kadang manusianya lah yang membuatnya jadi ribet. Jika punya uang banyak, beli yang baru. Jika uangnya ngepas, beli yang bekas asal layak pakai. Kadang yang bekas pun juga kondisinya masih bagus. Apalagi sebelumnya mobil tersebut dipunyai oleh orang yang suka merawat mobilnya dengan teratur. 
 
