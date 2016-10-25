@@ -8,7 +8,7 @@ Hal yang bakal di perdebatkan pada design rumah minimalis tipe 36 sesudah jadi y
 
 <img src="https://1.bp.blogspot.com/-P5TXazYoqEs/VM-ObUxmzQI/AAAAAAAAD18/Ey_nmYYjQ2c/s1600/kitchen%2BRumah%2BMinimalis%2BType%2B36.jpg">
 
-Bila yang tinggal cuma anda berdua saja dengan pasangan, baiknya pilih mebel yang serba manfaat serta tidaklah terlalu banyak, hingga anda dapat banyak mempersiapkan space kosong untuk kehadiran anggota keluarga baru, seperti buah hati. Jika anda geser ke rumah baru telah memiliki buah hati yang beranjak dewasa, berikanlah kepadanya kebebasan untuk pilih sendiri apa sajakah keperluan mebel ditambah lagi untuk kamarnya sendiri. Sudah pasti hal semacam ini bakal dengan pendampingan anda agar anak-anak dapat pilih beberapa barang yang dibutuhkannya dengan pas.
+Bila yang tinggal cuma anda berdua saja dengan pasangan, baiknya pilih <a href="https://www.ruparupa.com/furniture.html">mebel furniture minimalis Jakarta</a> yang serba manfaat serta tidaklah terlalu banyak, hingga anda dapat banyak mempersiapkan space kosong untuk kehadiran anggota keluarga baru, seperti buah hati. Jika anda geser ke rumah baru telah memiliki buah hati yang beranjak dewasa, berikanlah kepadanya kebebasan untuk pilih sendiri apa sajakah keperluan mebel ditambah lagi untuk kamarnya sendiri. Sudah pasti hal semacam ini bakal dengan pendampingan anda agar anak-anak dapat pilih beberapa barang yang dibutuhkannya dengan pas.
 
 Tersebut disini beberapa hal yang anda butuh cermati, ditambah lagi nyonya rumah yang kadang-kadang menginginkan bikin istananya sendiri :
 
@@ -18,4 +18,4 @@ Janganlah sangat banyak ornamen kayu, bahan material ini bakal bikin rumah anda 
 
 Mix and match, ini yang butuh anda fikirkan dengan baik, jangan pernah rumah anda berkesan sama-sama tabrak lari hingga begitu mencolok mata, sebagian pojok berlangsung tabrakan itu hal yang wajar serta bikin ciri khas sendiri.
 
-Banyak hal yang sudah diterangkan pasti bisa jadikan acuhan untuk isi kekosongan pada design rumah minimalis tipe 36, di mana rumah intinya yaitu bangunan yang bakal ditempati, dibangun serta dirawat berbarengan. Untuk tersebut baiknya banyak pihak yang dapat meredam keegoisannya hingga jadikan bangunan ini istananya sendiri, bila tidak mau tinggal sendiri di dalamnya yang sudah pasti begitu tak mengasyikkan.
+Banyak hal yang sudah diterangkan pasti bisa jadikan acuhan untuk isi kekosongan pada design rumah minimalis tipe 36, di mana rumah intinya yaitu bangunan yang bakal ditempati, dibangun serta dirawat berbarengan. Untuk tersebut baiknya banyak pihak yang dapat meredam keegoisan dalam <a href="http://dic.im/questions/1769/memilih-mebel-furniture-minimalis-yang-tepat">memilih mebel furniture minimalis yang tepat</a> hingga jadikan bangunan ini istananya sendiri, bila tidak mau tinggal sendiri di dalamnya yang sudah pasti begitu tak mengasyikkan.
