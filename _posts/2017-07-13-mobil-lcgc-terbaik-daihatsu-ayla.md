@@ -15,3 +15,5 @@ Terlepas dari masalah level ekonomi, mobil LCGC murah memang banyak diburu orang
 Itu jika digunakan untuk rental mobil. Jika digunakan untuk kebutuhan pribadi, mobil LCGC juga sangat diminati. Yang pertama jelas karena harganya murah. Yang kedua, jelas dari sisi penggunaan bahan bakarnya yang hemat. Apalagi biasanya mobil ini digunakan untuk kerja yang notabene dilakukan tiap hari. Maka mencari mobil yang hemat bahan bakar sangat dicari.
 
 Salah satu mobil LCGC terbaik 2017 saat ini adalah [mobil LCGC Daihatsu Ayla](http://daihatsu.co.id/product/ayla). Mobil LCGC ini meskipun murah, namun sudah dilengkapi dengan berbagai fitur dan kelebihan yang membuatmu puas. Daihatsu Ayla ini sudah dilengkapi dengan New Engine yang lebih powerful yaitu 1200 cc Dual VVT-i. Selain itu, Daihatsu Ayla ini juga menambah berbagai fitur keamanan, seperti: Dual SRS Airbag, Back Sonar, Side Impact Beam, Immobilizer & Alarm Integrated Key, Rear Stabilizer, Pedal Clutch Anti Back Up, dan fitur keamanan lainnya.
+
+Bagaimana? Apakah kamu sekarang mulai tertarik dengan mobil murah Daihatsu Ayla ini?
