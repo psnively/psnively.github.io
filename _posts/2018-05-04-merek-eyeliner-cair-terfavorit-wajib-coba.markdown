@@ -12,7 +12,7 @@ Eyeliner! Item make up yang satu ini ibarat penyelamat bagi mereka yang ingin me
 
 Bila kamu seorang muslimah dan membutuhkan eyeliner yang halal dan berkualitas, kamu bisa mencoba Wardah Staylast Waterproof Liquid Eyeliner. Ini adalah eyeliner dari brand lokal yakni Wardah yang sudah dijamin halal. Produk ini akan memberikan finishing yang tampak glossy. Sementara itu, daya tahan yang ditawarkan eyeliner ini juga cukup bagus. Wardah Staylast Waterproof Liquid Eyeliner merupakan eyeliner yang tahan terhadap air, baik itu keringat maupun air mata, jadi aman untuk digunakan seharian tanpa takut luntur. 
 
-<img src="http://i.istockimg.com/file_thumbview_approve/37319174/5/stock-photo-37319174-got-insurance.jpg">
+<img src="http://d2pa5gi5n2e1an.cloudfront.net/global/images/product/beauty/Wardah_Staylast_Liquid_eyeliner/Wardah_Staylast_Liquid_eyeliner_L_1.jpg">
 
 <b>Viva Perfect Shape Liquid Eye Liner</b><br />
 Brand legendaris Viva merilis sebuah merk eyeliner cair yang bagus dan murah, yakni Perfect Shape Liquid Eye Liner. Produk ini berfungsi untuk membingkai mata dengan akurasi dan hasil ketajaman yang tinggi. Ada kuas aplikator yang nyaman untuk mengaplikasikan eyeliner di sekitar kelopak mata. Viva Perfect Shape Liquid Eye Liner ini memiliki kelebihan lebih cepat kering sehingga kegiatan merias mata bisa dilakukan secara lebih cepat. Eyeliner ini memiliki daya tahan selama 6 jam. Meskipun murah meriah, eyeliner cair dari Viva ini bersifat waterproof, yang artinya tahan air sehingga tidak mudah luntur begitu saja.
