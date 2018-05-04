@@ -6,7 +6,7 @@ layout: post
 
 
 
-Eyeliner! Item make up yang satu ini ibarat penyelamat bagi mereka yang ingin mengoreksi bentuk mata agar terlihat lebih cantik dan menawan, sebab eyeliner mampu memberikan kesan mata yang tegas dan lebih hidup. Eyeliner sendiri terdiri dari beberapa jenis, mulai dari yang berbentuk cair, gel, juga pensil dan spidol. Bagi pemula, yang paling mudah digunakan adalah jenis pensil, spidol dan cair. Jenis cair sangat digemari karena mampu membuat eyeliner dengan bentuk yang rapi dan warna yang tegas. Bagi kamu yang ingin menggunakan eyeliner cair, berikut merek eyeliner cair rekomendasi dengan harga terjangkau namun kualitas terjamin.
+Eyeliner! Item make up yang satu ini ibarat penyelamat bagi mereka yang ingin mengoreksi bentuk mata agar terlihat lebih cantik dan menawan, sebab eyeliner mampu memberikan kesan mata yang tegas dan lebih hidup. Eyeliner sendiri terdiri dari beberapa jenis, mulai dari yang berbentuk cair, gel, juga pensil dan spidol. Bagi pemula, yang paling mudah digunakan adalah jenis pensil, spidol dan cair. Jenis cair sangat digemari karena mampu [membuat eyeliner](https://www.bukalapak.com/blog/beauty/contek-cara-menggunakan-eyeliner-yang-mudah-dan-tak-berlebihan-untuk-ke-kampus-21481) dengan bentuk yang rapi dan warna yang tegas. Bagi kamu yang ingin menggunakan eyeliner cair, berikut merek eyeliner cair rekomendasi dengan harga terjangkau namun kualitas terjamin.
 
 <b>Wardah Staylast Waterproof Liquid Eyeliner</b><br />
 
